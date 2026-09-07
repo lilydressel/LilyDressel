@@ -6,4 +6,4 @@ I am a Junior at James Madison University💜. I am a Communications major with 
 * Digital Studies Minor
 * Future Career Field: Public Relations
 ## Contact ##
-<img width="800" height="636" alt="image" src="https://github.com/user-attachments/assets/5f1015da-5d8b-4d44-a961-02dd8a053aeb" /> Email: lilydresselc@gmail.com
+<img width="3" height="2" alt="image" src="https://github.com/user-attachments/assets/5f1015da-5d8b-4d44-a961-02dd8a053aeb" /> Email: lilydresselc@gmail.com
