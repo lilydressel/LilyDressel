@@ -1,6 +1,5 @@
 ## Hi, I'm Lily Dressel😁 ##
-I am a Junior at James Madison University💜. I am a Communications major with a concentration in Public Relations, and I am minoring in Digital Studies. <img width="648" height="153" alt="image" src="https://github.com/user-attachments/assets/b0b63713-dd77-4037-a6f3-d86d2de67353" />
-
+I am a Junior at James Madison University💜. I am a Communications major with a concentration in Public Relations, and I am minoring in Digital Studies.
 ## About Me ##
 * Communications Major
      * Public Relations Concentration
