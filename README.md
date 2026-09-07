@@ -1,4 +1,3 @@
-<img width="648" height="53" alt="image" src="https://github.com/user-attachments/assets/13a71577-35fc-4d5e-9a80-d0b92601b0e2" />
 ## Hi, I'm Lily Dressel😁 ##
 I am a Junior at James Madison University💜. I am a Communications major with a concentration in Public Relations, and I am minoring in Digital Studies.
 ## About Me ##
