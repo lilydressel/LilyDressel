@@ -4,7 +4,7 @@ I am a Junior at James Madison University💜. I am a Communications major with 
 * Communications Major
      * Public Relations Concentration
 * Digital Studies Minor
-* Future Career Field: Public Relations
+* Future Career Field: Public Relations, Fashion
 ## Technical Skills ##
 * 🖼Canva
 * 📄Microsoft Word
